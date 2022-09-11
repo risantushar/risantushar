@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Md Tohidula Alam, I am a student of Computer scince and Engineering. I have already completed my Graduation B.Sc in Computer Scince and Engineering Depertment.
+- 👋 Hi, I’m @Md Tohidul Alam, I am a student of Computer scince and Engineering. I have already completed my Graduation B.Sc in Computer Scince and Engineering Depertment.
 - As a student of CSE dept i have lots of experiense in IT Sector, Specially in Web.
 - Beside my Educational part i have completed a professional Web design and Development course from Professt/ Alchemy Software Limited IT training center.
 - I am professional Web Designer and Developer. Also Professional Graphics Designer.
